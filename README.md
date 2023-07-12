@@ -1,3 +1,4 @@
-# -爱马游戏最新地址公布
-每日更新中，可能需要梯子才能看到图
-https//amyx.xyz
+# 爱马游戏最新地址公布
+游戏列表：
+https://www.kdocs.cn/l/cgdsSoinLT2A
+链接为金山文档，随时更新。
